@@ -18,7 +18,7 @@ If you've ever felt overwhelmed by the complexities of real estate wholesaling o
 * **Active Community:** A Discord server where members can network, ask questions, and share successes.
 * **Expert Mentorship:** Direct guidance from experienced real estate investors, including founders Richard Taylor and Chris Gallagher.
 
-[Join Hold My Hand Wholesale Now](https://kelexbawz.com/hold-my-hand-wholesale)
+[Join Hold My Hand Wholesale Now](https://whop.com/hold-my-hand-wholesale?a=kelechienwere1234)
 
 ---
 
@@ -34,7 +34,7 @@ At just **\$19.99 per month**, HMHW offers an impressive array of tools and supp
 
 Considering the depth and breadth of resources available, the subscription fee is a bargain, especially when compared to other programs charging thousands for similar content.
 
-[Join Hold My Hand Wholesale Now to Unlock Exclusive Tools](https://kelexbawz.com/hold-my-hand-wholesale)
+[Join Hold My Hand Wholesale Now to Unlock Exclusive Tools](https://whop.com/hold-my-hand-wholesale?a=kelechienwere1234)
 
 ---
 
@@ -68,7 +68,7 @@ The active Discord community fosters collaboration, allowing members to share ex
 
 Access to real negotiation calls and deal breakdowns bridges the gap between theory and practice, providing invaluable insights into the wholesaling process.
 
-[Join Hold My Hand Wholesale Now to Start Your Real Estate Journey](https://kelexbawz.com/hold-my-hand-wholesale)
+[Join Hold My Hand Wholesale Now to Start Your Real Estate Journey](https://whop.com/hold-my-hand-wholesale?a=kelechienwere1234)
 
 ---
 
@@ -94,7 +94,7 @@ HMHW boasts a 4.93-star rating from over 1,400 reviews, reflecting high user sat
 
 These testimonials highlight the program's effectiveness in delivering value and fostering a supportive learning environment.
 
-[Join Hold My Hand Wholesale Now to Learn from the Best](https://kelexbawz.com/hold-my-hand-wholesale)
+[Join Hold My Hand Wholesale Now to Learn from the Best](https://whop.com/hold-my-hand-wholesale?a=kelechienwere1234)
 
 ---
 
@@ -102,4 +102,4 @@ These testimonials highlight the program's effectiveness in delivering value and
 
 **Hold My Hand Wholesale** emerges as a comprehensive, affordable, and supportive platform for anyone looking to delve into real estate wholesaling. With its blend of live mentorship, powerful tools, and an active community, it offers a unique opportunity to learn and grow in the industry. While it requires dedication and effort, the potential rewards make it a worthwhile investment.
 
-[Join Hold My Hand Wholesale Now to Transform Your Real Estate Career](https://kelexbawz.com/hold-my-hand-wholesale)
+[Join Hold My Hand Wholesale Now to Transform Your Real Estate Career](https://whop.com/hold-my-hand-wholesale?a=kelechienwere1234)
